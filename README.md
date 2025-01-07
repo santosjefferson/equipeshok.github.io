@@ -1,0 +1,1 @@
+# equipeshok.github.io
